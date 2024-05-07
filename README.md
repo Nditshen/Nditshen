@@ -2,7 +2,7 @@
 - 👀 I’m interested Electronics
 - 🌱 I’m currently pushing my degree in Electrical & Electronics
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me manumasakona@gmail.com/whatsapp +2766 441 7893
+- 📫 How to reach me manumasakona@gmail.com/whatsapp +27 66 441 7893
 - 😄 Pronouns: He.
 - ⚡ Fun fact: ...
 
